@@ -20,7 +20,7 @@ To join an organization where I can effectively utilize my skills and potential,
 
 | Year | Degree | Institution | Result / Status |
 |-----|------|------|------|
-| 2025 | Bachelor of Computer Science and Engineering | Leading University, Sylhet | 3rd Year Running |
+| 2025 | Bachelor of Computer Science and Engineering | Leading University, Sylhet | 4th Year Running |
 | 2020 | Higher Secondary Certificate (HSC) | Blue Bird High School & College, Sylhet | GPA: 4.33 |
 | 2018 | Secondary School Certificate (SSC) | Shahjalal University School & College, Sylhet | GPA: 4.22 |
 
